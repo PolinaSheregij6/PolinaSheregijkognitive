@@ -1,0 +1,2 @@
+# PolinaSheregijkognitive
+Когнитивные искажения 
